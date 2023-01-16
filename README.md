@@ -6,3 +6,10 @@ The MD is for markdown
 
 # Rules of use
 This file is public so anyone can see what you put and who did it.
+Hæ
+:)
+<3
+:/
+:(
+:D
+Ég elska Github
