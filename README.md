@@ -18,5 +18,4 @@ Hæ
 Hæ
 Hæ
 :(
-sælleddu
-my codename is orreh21 and my favorite food is chicken nuggets
+
